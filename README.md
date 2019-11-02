@@ -1,0 +1,2 @@
+# knowledge
+💡 Document everything
