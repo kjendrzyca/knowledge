@@ -50,3 +50,18 @@ Source:
 - You need to follow your dreams BUT love the process because the process matters.
 - That's why so many movie stars are starting to take drugs etc.
 - Also that's why so many movie directors after achieving everything they wanted are no loger able to do good movies.
+
+### [Mark Manson – The Most Important Question](http://markmanson.net/question)
+
+- Fights are part of people lifes and we need to deal with that.
+- You can't win if you don't play.
+- I wanted the reward and not the struggle. I wanted the result and not the process. I was in love not with the fight but only the victory. And life doesn’t work that way.
+- This is the most simple and basic component of life: our struggles determine our successes. So choose your struggles wisely, my friend.
+- **How do you choose to suffer?**
+
+### [Mark Manson – Being special is not so special](http://markmanson.net/being-special)
+
+- Be aware of - “The neighbors got a new car, so now we feel like we need a new car.”
+- You don’t have to prove anything to anybody, including yourself.
+- We need to get pleasure of simple things we do every day.
+- If you can’t find pleasure in the simple or the mundane, then you won’t find pleasure anywhere.
