@@ -29,21 +29,21 @@ Source:
 
 ## Mark Manson
 
-### [Mark Manson – Life Purpose](http://markmanson.net/life-purpose)
+### [Life Purpose](http://markmanson.net/life-purpose)
 
 - Do things you think are important in life.
 - Embarrass yourself in order to achieve something.
 - Do something useful for world - "save the world".
 - Ask yourself - what would you do if you had to leave house all day?
 
-### [Mark Manson – Surviving 20s](http://markmanson.net/surviving-my-20s)
+### [Surviving 20s](http://markmanson.net/surviving-my-20s)
 
 - **Fail often** – reminder.
 - Act on opportunities.
 - Judge people not by who they are, but by what they do.
 - Do a lot of small things because there is no such thing like overnight success.
 
-### [Mark Manson – Dreams](http://markmanson.net/dreams)
+### [Dreams](http://markmanson.net/dreams)
 
 - The reason not every fantasy should be pursued is because fantasies never have negative repercussions. Reality does.
 - When you reach all your dreams there will be nothing more to do. You will be miserable.
@@ -51,7 +51,7 @@ Source:
 - That's why so many movie stars are starting to take drugs etc.
 - Also that's why so many movie directors after achieving everything they wanted are no loger able to do good movies.
 
-### [Mark Manson – The Most Important Question](http://markmanson.net/question)
+### [The Most Important Question](http://markmanson.net/question)
 
 - Fights are part of people lifes and we need to deal with that.
 - You can't win if you don't play.
@@ -59,9 +59,48 @@ Source:
 - This is the most simple and basic component of life: our struggles determine our successes. So choose your struggles wisely, my friend.
 - **How do you choose to suffer?**
 
-### [Mark Manson – Being special is not so special](http://markmanson.net/being-special)
+### [Being Special Is Not So Special](http://markmanson.net/being-special)
 
 - Be aware of - “The neighbors got a new car, so now we feel like we need a new car.”
 - You don’t have to prove anything to anybody, including yourself.
 - We need to get pleasure of simple things we do every day.
 - If you can’t find pleasure in the simple or the mundane, then you won’t find pleasure anywhere.
+
+### [How To Quit Your Job and Travel The World](https://markmanson.net/how-to-quit-your-job-and-travel-the-world)
+
+- 90% of your plans are going to fail no matter what you do. Get used to it.
+- It’s not because we’re poor planners, it’s because there are simply too many unknowns.
+- Plan the best you can, but then throw yourself into the fire.
+- Leave yourself no option but to come out on top. It will be hard and nerve-wracking, but that’s how you grow.
+- That’s how you squeeze all of juice out of life. Terrify yourself. Then laugh about it.
+
+### [Risk](http://markmanson.net/risk)
+
+- “I feel as if no one wants to talk to me, but that feeling may very well be wrong. Let’s find out.”
+- Emotions are useful. But they are our biological suggestions, not commandments.
+- There is a difference between what we are capable of doing and what we allow ourselves to do.
+
+### [Your Two Minds](http://markmanson.net/your-two-minds)
+
+- Everyone have two minds – the thinking one and the observing one. People have control only over the second one. So you need to observe what you are thinking because thinking is deluding you.
+- Everytime you think „I'm angry” or „I hate him.” change it to „I feel anger” or „I feel hatred towards him.”. This kind of change gives you control over your emotions.
+
+### [Compatibility and Chemistry](http://markmanson.net/compatibility-and-chemistry)
+
+- Two most important things in dating/relationships are compatibility and chemistry.
+- High compatibility between people comes from similarities in their lifestyles and values.
+- Chemistry on the other hand, represents the emotional connection present when you’re with each other. High levels of chemistry usually come from opposite yet complementary qualities in people.
+
+### [Three Loves Theory](http://markmanson.net/three-loves-theory)
+
+- There are three kinds of loves: lust, passion and commitment.
+- Lust is the love that comes from our reptilian brain and it's about fucking.
+- Passion is the love that involves emotions and natural chemistry between people. There cannot be Passion without first having the Lust, but after the Passion comes there is no need for love anymore.
+- Commitment comes after 2-3 years of relationship and then people have connection in their brains that tells them the person they love is their own "self". Passion must exist for Commitment but later on, Commitment can exist without it.
+
+### [The Levels of Eye Contact](http://markmanson.net/the-levels-of-eye-contact)
+
+- Body language studies claim that a person who breaks eye contact with you by looking down is intimidated (i.e., attracted) and a person who breaks eye contact by looking to the side is indifferent (i.e., not attracted).
+- Level 3 is when someone looks at you and breaks eye contact as they normally do, but they hold the eye contact for a split second longer than is normal.
+- Level 5 – The Gaze. This is a solid 2-3 seconds of eye contact without them breaking it.
+- It’s so important to get in the habit of being able to hold eye contact, because otherwise you’ll miss out on all of the people giving you Level 3-5 eye contact. The gaze is a clear and large sign of interest.
