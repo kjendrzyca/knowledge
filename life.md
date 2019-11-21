@@ -104,3 +104,19 @@ Source:
 - Level 3 is when someone looks at you and breaks eye contact as they normally do, but they hold the eye contact for a split second longer than is normal.
 - Level 5 – The Gaze. This is a solid 2-3 seconds of eye contact without them breaking it.
 - It’s so important to get in the habit of being able to hold eye contact, because otherwise you’ll miss out on all of the people giving you Level 3-5 eye contact. The gaze is a clear and large sign of interest.
+
+## [Power in Vulnerability](http://markmanson.net/power-in-vulnerability)
+
+- Vulnerability is the path of true human connection and becoming a truly attractive person.
+- As Psychologist Robert Glover says: “Humans are attracted to each other’s rough edges.”
+- Show your rough edges.
+- Stop trying to be perfect.
+- Expose yourself and share yourself without inhibition.
+- Take the rejections and lumps and move on because you’re a bigger and stronger man.
+
+## [What Are Your Stories](http://markmanson.net/what-are-your-stories)
+
+- Everyone have their own stories that protect their own emotional interia.
+- People tell themselves those stories to justify that internal resistance inside them.
+- As you become more skillful (eg. your self-eseteem is going up) the inside stories change.
+- What’s important is that you move things forward without hesitation.
