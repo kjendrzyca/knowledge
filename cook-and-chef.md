@@ -4,7 +4,7 @@
 
 - Nanomanaging - know every detail about his rockets
 - When learning - develops tree trunk understanding
-"if something requires inspiring words to be done, it is not worth doing"
+- "If something requires inspiring words to be done, it is not worth doing"
 - Generating ideas
   - What would be the best way to solve something?
   - Combine ideas from different industries
@@ -71,7 +71,8 @@ So you pick a goal from the pool—the thing you’re going to try to move from 
 Examples:
 
 - And how do you cause something to change? You direct your power towards it. A person’s power can come in various forms: your time, your energy (mental and physical), your resources, your persuasive ability, your connection to others, etc.
-- The concept of employment is just Person A using their resources power (a paycheck) to direct Person B’s time and/or energy power toward Person A’s goal. When Oprah publicly recommends a book, that’s combining her abundant power of connection (she has a huge reach) and her abundant power of persuasion (people trust her) and directing them towards the goal of getting the book into the hands of thousands of people who would have otherwise never known about it.
+- The concept of employment is just Person A using their resources power (a paycheck) to direct Person B’s time and/or energy power toward Person A’s goal.
+- When Oprah publicly recommends a book, that’s combining her abundant power of connection (she has a huge reach) and her abundant power of persuasion (people trust her) and directing them towards the goal of getting the book into the hands of thousands of people who would have otherwise never known about it.
 
 #### 4. Software - Strategy Box
 
@@ -133,4 +134,91 @@ Filling in your Reality box from first principles is a great challenge, and keep
 
 Full software:
 
-![software-ful](assets/software-full.jpg)
+![software-full](assets/software-full.jpg)
+
+## How Musk’s software wrote his life story
+
+### Step 1
+
+Step 1 for Elon was filling in the contents of the Want box.
+
+Doing this from first principles is a huge challenge—you have to dig deep into concepts like right and wrong, good and bad, important and trivial, valuable and frivolous. You have to figure out what you respect, what you disdain, what fascinates you, what bores you, and what excites you deep in your inner child. Of course, there’s no way for anyone of any age to have a clear cut answer to these questions, but Elon did the best thing he could by ignoring others and independently pondering.
+
+I talked with him about his early thought process in figuring out what to do with his career. He has said many times that he cares deeply about the future well-being of the human species—something that is clearly in the center of his Want box.
+
+> "I see the future as a series of branching probability streams."
+
+**What will most affect the future of humanity?**
+
+- the internet;
+- sustainable energy;
+- space exploration, in particular the permanent extension of life beyond Earth;
+- artificial intelligence;
+- reprogramming the human genetic code
+
+### Step 2
+
+Step 2 Meanwhile, he was a teenager with no money, reputation, or connections, and limited knowledge and skills. In other words, his Reality box wasn’t that big.
+
+So he did what many young people do — **he focused his early goals not around achieving his Wants, but expanding the Reality box and its list of “things that are possible.”**
+
+**"Formal education was just another way to download information into your brain and “a painfully slow download”"**
+
+
+> “When something is important enough, you do it even if the odds are not in your favor.” ~Elon Musk
+
+Musk sees people as computers, and he sees his brain software as the most important product he owns—and since there aren’t companies out there designing brain software, he designed his own, beta tests it every day, and makes constant updates.
+
+## Most People’s Software
+
+**Not only do most of us not obsess over our own software—most of us don’t even understand our own software, how it works, or why it works that way.**
+
+A newborn’s brain is a malleable ball of hardware clay, and its job upon being born is to quickly learn about whatever environment it’s been born into and start shaping itself into the optimal tool for survival in those circumstances. That’s why it’s so easy for young children to learn new skills.
+
+As people age, the clay begins to harden and it becomes more difficult to change the way the brain operates.
+So when it comes to our brain software—our values, perceptions, belief systems, reasoning techniques—what are we learning during those key early years?
+
+We were taught all kinds of things by our parents and teachers—what’s right and wrong, what’s safe and dangerous, the kind of person you should and shouldn’t be. But the idea was: I’m an adult so I know much more about this than you, it’s not up for debate, don’t argue, just obey. That’s when the cliché “Why?” game comes in (what MuskSpeak calls “the chained why”).
+
+**A child’s instinct isn’t just to know what to do and not to do, she wants to understand the rules of her environment.**
+
+**When parents and teachers tell a kid to do XYZ and to simply obey, it’s like installing a piece of already-designed software in the kid’s head.**
+
+When kids ask Why? and then Why? and then Why?, they’re trying to deconstruct that software to see how it was built—to get down to the first principles underneath so they can weigh how much they should actually care about what the adults seem so insistent upon.
+
+The first few times a kid plays the Why game, parents think it’s cute. But many parents, and most teachers, soon come up with a way to cut the game off:
+
+- Because I said so.
+- “Because I said so” inserts a concrete floor into the child’s deconstruction effort below which no further Why’s may pass. It says, “You want first principles? There. There’s your floor. No more Why’s necessary. Now fucking put your boots on because I said so and let’s go.”
+- A command or a lesson or a word of wisdom that comes without any insight into the steps of logic it was built upon is feeding a kid a fish instead of teaching them to reason. And when that’s the way we’re brought up, we end up with a bucket of fish and no rod—a piece of installed software that we’ve learned how to use, but no ability to code anything ourselves.
+
+### School makes things worse.
+
+One of my favorite thinkers, writer Seth Godin (whose blog is bursting with first principles reasoning wisdom), explains in a TED Talk about school that the current education system is a product of the Industrial Age, a time that catapulted productivity and the standard of living. But along with many more factories came the need for many more factory workers, so our education system was redesigned around that goal. He explains:
+
+> The deal was: universal public education whose sole intent was not to train the scholars of tomorrow — we had plenty of scholars. It was to train people to be willing to work in the factory. It was to train people to behave, to comply, to fit in. “We process you for a whole year. If you are defective, we hold you back and process you again. We sit you in straight rows, just like they organize things in the factory. We build a system all about interchangeable people because factories are based on interchangeable parts.”
+
+Couple that concept with what another favorite writer of mine, James Clear, explained recently on his blog:
+
+> In the 1960s, a creative performance researcher named George Land conducted a study of 1,600 five-year-olds and 98 percent of the children scored in the “highly creative” range. Dr. Land re-tested each subject during five year increments. When the same children were 10-years-old, only 30 percent scored in the highly creative range. This number dropped to 12 percent by age 15 and just 2 percent by age 25. As the children grew into adults they effectively had the creativity trained out of them. In the words of Dr. Land, “non-creative behavior is learned.”
+
+**Creative thinking is a close cousin of first principles reasoning.**
+
+People think of creativity as a natural born talent, but it’s actually much more of a way of thinking—it’s the thinking version of painting onto a blank canvas. But to do that requires brain software that’s skilled and practiced at coming up with new things, and school trains us on the exact opposite concept—to follow the leader, single-file, and to get really good at taking tests.
+
+### Parents makes things worse
+
+Just say you have an overbearing mother who insists you grow up with her values, her worldview, her fears, and her ambitions—because she knows best, because it’s a scary world out there, because XYZ is respectable, because she said so.
+
+Your head might end up running your whole life on “because mom says so” software. If you play the Why? game with something like the reason you’re in your current job, it may take a few Why’s to get there, but you’ll most likely end up hitting a concrete floor that says some version of “because mom says so.”
+
+***But why does mom say so?***
+
+***Mom says so because her mom said so—after growing up in Poland in 1932, where she was from a home where her dad said so because his dad — a minister from a small town outside Krakow — said so after his grandfather, who saw some terrible shit go down during the Siberian Uprising of 1866, ingrained in his children’s heads the critical life lesson to never associate with blacksmiths.***
+
+Career Selection Software ca 1930:
+
+![grandma-software](assets/grandma-software.jpg)
+
+**When old software is installed on new computers, people end up with a set of values not necessarily based on their own deep thinking, a set of beliefs about the world not necessarily based on the reality of the world they live in, and a bunch of opinions they might have a hard time defending with an honest heart.**
+
