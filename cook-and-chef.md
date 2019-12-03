@@ -222,3 +222,18 @@ Career Selection Software ca 1930:
 
 **When old software is installed on new computers, people end up with a set of values not necessarily based on their own deep thinking, a set of beliefs about the world not necessarily based on the reality of the world they live in, and a bunch of opinions they might have a hard time defending with an honest heart.**
 
+## Dogma
+
+Dogma is everywhere and comes in a thousand different varieties—but the format is generally the same:
+
+**X is true because [authority] says so. The authority can be many things.**
+
+![because-i-said-so](/assets/because-i-said-so.jpg)
+
+**You may not like living by someone else’s dogma, but you’re left without much choice. When your childhood attempts at understanding are met with “Because I said so,” and you absorb the implicit message “Your own reasoning capability is shit, don’t even try, just follow these rules so you don’t fuck your life up,” you grow up with little confidence in your own reasoning process. When you’re never forced to build your own reasoning pathways, you’re able to skip the hard process of digging deep to discover your own values and the sometimes painful experience of testing those values in the real world and learning you want to adjust them—and so you grow up a total reasoning amateur.**
+
+People don’t do any of this intentionally—usually if we reject a type of dogma, our intention is to break free of a life of dogmatic thinking altogether and brave the cold winds of independent reasoning.
+
+But dogmatic thinking is a hard habit to break, especially when it’s all you know.
+
+I have a friend who just had a baby, and she told me that she was so much more open-minded than her parents, because they wanted her to have a prestigious career, but she’d be open to her daughter doing anything. After a minute, she thought about it, and said, “Well actually, no, what I mean by that is if she wanted to go do something like spend her life on a farm in Montana, I’d be fine with that and my parents never would have been—but if she said she wanted to go work at a hedge fund, I’d kill her.” She realized mid-sentence that she wasn’t free of the rigid dogmatic thinking of her parents, she had just changed dogma brands.
