@@ -237,3 +237,44 @@ People don’t do any of this intentionally—usually if we reject a type of dog
 But dogmatic thinking is a hard habit to break, especially when it’s all you know.
 
 I have a friend who just had a baby, and she told me that she was so much more open-minded than her parents, because they wanted her to have a prestigious career, but she’d be open to her daughter doing anything. After a minute, she thought about it, and said, “Well actually, no, what I mean by that is if she wanted to go do something like spend her life on a farm in Montana, I’d be fine with that and my parents never would have been—but if she said she wanted to go work at a hedge fund, I’d kill her.” She realized mid-sentence that she wasn’t free of the rigid dogmatic thinking of her parents, she had just changed dogma brands.
+
+## Tribes
+
+Tribalism tends to have a negative connotation, but the concept of a tribe itself isn’t bad.
+
+A tribe is just a group of people linked together by something they have in common—a religion, an ethnicity, a nationality, family, a philosophy, a cause. Christianity is a tribe. The US Democratic Party is a tribe. Australians are a tribe. Radiohead fans are a tribe. Arsenal fans are a tribe.
+
+### Tribalism is good when the tribe and the tribe member both have an independent identity and they happen to be the same.
+
+The tribe member has chosen to be a part of the tribe because it happens to match who he really is. If either the identity of the tribe or the member evolves to the point where the two no longer match, the person will leave the tribe. Let’s call this conscious tribalism.
+
+### Tribalism is bad when the tribe and tribe member’s identity are one and the same.
+
+The tribe member’s identity is determined by whatever the tribe’s dogma happens to say. If the identity of the tribe changes, the identity of the tribe member changes with it in lockstep. The tribe member’s identity can’t change independent of the tribal identity because the member has no independent identity. Let’s call this blind tribalism.
+
+### With conscious tribalism, the tribe member and his identity comes first.
+
+The tribe member’s identity is the alpha dog, and who he is determines the tribes he’s in. With blind tribalism, the tribe comes first. The tribe is the alpha dog and it’s the tribe that determines who he is.
+
+This isn’t black and white—it’s a spectrum—but when someone is raised without strong reasoning skills, they may also lack a strong independent identity and end up vulnerable to the blind tribalism side of things—especially with the various tribes they were born into. That’s what Einstein was getting at when he said,
+
+>“Few people are capable of expressing with equanimity opinions which differ from the prejudices of their social environment. Most people are even incapable of forming such opinions.”
+
+### The allure of dogmatic tribes makes sense—they appeal to very core parts of human nature.
+
+**Humans crave connection and camaraderie**, and a guiding dogma is a common glue to bond together a group of unique individuals as one.
+
+**Humans want internal security**, and for someone who grows up feeling shaky about their own distinctive character, a tribe and its guiding dogma is a critical lifeline—a one-stop shop for a full suite of human opinions and values.
+
+**Humans also long for the comfort and safety of certainty**, and nowhere is conviction more present than in the groupthink of blind tribalism. While a scientist’s data-based opinions are only as strong as the evidence she has and inherently subject to change, tribal dogmatism is an exercise in faith, and with no data to be beholden to, blind tribe members believe what they believe with certainty.
+
+But there’s a heavy cost to these comforts. Insecurity can be solved the hard way or the easy way—and by giving people the easy option, **dogmatic tribes remove the pressure to do the hard work of evolving into a more independent person with a more internally-defined identity**. In that way, dogmatic tribes are an enabler of the blind tribe member’s deficiencies.
+
+That key word (Us) in “People like us do stuff like this” can get you into trouble pretty quickly.
+
+In blind tribalism, the tribe’s guiding dogma doubles as the identity of the tribe members, and the Us factor enforces that concept. Conscious tribe members reach conclusions—blind tribe members are conclusions.
+
+The best friend of a blind Us is a nemesis Us—Them. Nothing unites Us like a collectively hated anti-Us, and the blind tribe is usually defined almost as much by hating the dogma of Them as it is by abiding by the dogma of Us.
+
+![equations1.png](/assets/equations1.png)
+
