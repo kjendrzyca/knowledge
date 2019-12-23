@@ -278,3 +278,80 @@ The best friend of a blind Us is a nemesis Us—Them. Nothing unites Us like a c
 
 ![equations1.png](/assets/equations1.png)
 
+## The Cook and the Chef
+
+**The difference between the way Elon thinks and the way most people think is kind of like the difference between a cook and a chef.**
+
+The chef reasons from first principles, and for the chef, the first principles are raw edible ingredients. Those are her puzzle pieces, her building blocks, and she works her way upwards from there, using her experience, her instincts, and her taste buds.
+
+The cook works off of some version of what’s already out there—a recipe of some kind, a meal she tried and liked, a dish she watched someone else make.
+
+**But what all cooks have in common is their starting point is something that already exists. Even the innovative cook is still making an iteration of a burger, a pizza, and a cake.**
+
+### Chef-Cook Spectrum
+
+In the culinary world, there’s nothing wrong with being a cook. Most people are cooks because for most people, inventing recipes isn’t a goal of theirs.
+
+But in life—when it comes to the reasoning “recipes” we use to churn out a decision—we may want to think twice about where we are on the cook-chef spectrum.
+
+On a typical day, a “reasoning cook” and a “reasoning chef” don’t operate that differently. Even the chef becomes quickly exhausted by the mental energy required for first principles reasoning, and usually, doing so isn’t worth his time. Both types of people spend an average day with their brain software running on auto-pilot and their conscious decision-making centers dormant.
+
+**But then comes a day when something new needs to be figured out.**
+
+The chef says, “Ugh okay, here we go,” rolls up his sleeves, and does what he always does in these situations—he switches on the active decision-making part of his software and starts to go to work.
+
+He looks at what data he has and seeks out what more he needs. He thinks about the current state of the world and reflects on where his values and priorities lie. He gathers together those relevant first principles ingredients and starts puzzling together a reasoning pathway.
+
+It takes some hard work, but eventually, the pathway brings him to a hypothesis.
+
+He knows it’s probably wrong-ish, and as new data emerges, he’ll “taste-test” the hypothesis and adjust it.
+
+He keeps the decision-making center on standby for the next few weeks as he makes a bunch of early adjustments to the flawed hypothesis—a little more salt, a little less sugar, one prime ingredient that needs to be swapped out for another.
+
+Eventually, he’s satisfied enough with how things are going to move back into auto-pilot mode.
+
+This new decision is now part of the automated routine—a new recipe is in the cookbook—and he’ll check in on it to make adjustments every once in a while or as new pertinent data comes in, the way he does for all parts of his software.
+
+---
+
+If you start looking for it, you’ll see the chef/cook thing happening everywhere.
+
+There are chefs and cooks in the worlds of music, art, technology, architecture, writing, business, comedy, marketing, app development, football coaching, teaching, and military strategy.
+
+And in each case, though both parties are usually just on autopilot, mindlessly playing the latest album again and again at concerts, it’s in those key moments when it’s time to write a new album—those moments of truth in front of a clean canvas, a blank Word doc, an empty playbook, a new sheet of blueprint paper, a fresh whiteboard—that the chef and the cook reveal their true colors.
+
+**The chef creates while the cook, in some form or another, copies.**
+
+**Being a chef isn’t being like Elon Musk—it’s being yourself.**
+
+![chef-cook-spetrum.png](/assets/chef-cook-spectrum.png)
+
+A follower, we think, is a weakling with no mind of their own. We think about leadership positions we’ve held and initiatives we’ve taken at work and the way we never let friends boss us around, and we take these as evidence that we’re no follower. Which in turn means that we’re not just a cook.
+
+But the problem is—the only thing all of that proves is that you’re no follower within your tribe.
+
+> In order to form an immaculate member of a flock of sheep one must, above all, be a sheep. ~Einstein
+
+In other words, you might be a star and a leader in your world or in the eyes of your part of society, but if the core reason you picked that goal in the first place was because your tribe’s cookbook says that it’s an impressive thing and it makes the other tribe members gawk, you’re not being a leader—you’re being a super-successful follower.
+
+### Most people aren't chefs at all
+
+**Musk is an impressive chef for sure, but what makes him such an extreme standout isn’t that he’s impressive—it’s that most of us aren’t chefs at all.**
+
+**It’s like a bunch of typewriters looking at a computer and saying, “Man, that is one talented typewriter.”**
+
+“People consider X to be scary, but their fear is not based on logic, so I’m not scared of X.” That’s not courage—that’s logic.
+
+Courage means doing something risky. Risk means exposing yourself to danger. We intuitively understand this—that’s why most of us wouldn’t call child Elon courageous for sleeping with the lights off. Courage would be a weird word to use there because no actual danger was involved.
+
+1) We mistake the chef’s clear view of the present for vision into the future.
+2) We mistake the chef’s accurate understanding of risk for courage.
+3) We mistake the chef’s originality for brilliant ingenuity.
+
+**Yeah, Musk is smart as fuck and insanely ambitious—but that’s not why he’s beating everybody.**
+
+**What makes Musk so rad is that he’s a software outlier. A chef in a world of cooks. A science geologist in a world of flood geologists. A brain software pro in a world where people don’t realize brain software is a thing.**
+
+The curious thing about the car industry isn’t why Tesla is focusing so hard on electric cars, and the curious thing about the aerospace industry isn’t why SpaceX is trying so hard to make rockets reusable—the fascinating question is why they’re the only companies doing so.
+
+🚨 **We spent this whole time trying to figure out the mysterious workings of the mind of a madman genius only to realize that Musk’s secret sauce is that he’s the only one being normal.** 🚨
