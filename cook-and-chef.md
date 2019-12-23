@@ -355,3 +355,79 @@ Courage means doing something risky. Risk means exposing yourself to danger. We 
 The curious thing about the car industry isn’t why Tesla is focusing so hard on electric cars, and the curious thing about the aerospace industry isn’t why SpaceX is trying so hard to make rockets reusable—the fascinating question is why they’re the only companies doing so.
 
 🚨 **We spent this whole time trying to figure out the mysterious workings of the mind of a madman genius only to realize that Musk’s secret sauce is that he’s the only one being normal.** 🚨
+
+## How To Be A Chef 👨‍🍳
+
+In 50,000 BC, tribes full of independent thinkers probably suffered from having too many chefs in the kitchen, which would lead to too many arguments and factions within the tribe. A tribe with a strong leader at the top and the rest of the members simply following the leader would fare better.
+
+It’s not in our DNA to be chefs because human self-preservation never depended upon independent thinking—it rode on fitting in with the tribe, on staying in favor with the chief, on following in the footsteps of the elders who knew more about staying alive than we did, and on teaching our children to do the same—which is why we now live in a cook society where cook parents raise their kids by telling them to follow the recipe and stop asking questions about it.
+
+So how do we snap out of the trance?
+
+### Epiphany 1: You don’t know shit.
+
+> “The greatest enemy of knowledge is not ignorance, it is the illusion of knowledge.” ~Stephen Hawking
+
+> "I was born not knowing and have had only a little time to change that here and there." ~Richard Feynman
+
+> **"You should take the approach that you’re wrong. Your goal is to be less wrong."** ~Musk
+
+If we want to become more chef-like, we have to make sure we’re doing our thinking in a lab. Which means identifying which parts of our thinking are currently sitting in church.
+
+It’s time to roll up our sleeves, pop open the hood, and get our hands dirty with a bunch of not-that-fun questions about what we truly want, what’s truly possible, and whether the way we’re living our lives follows logically from those things.
+
+People’s lives are no different, which is why it’s so important to find the toxic lumps of false dogma tucked inside the layers of your reasoning software. Identifying one and adjusting it can strengthen the whole chain above and create a breakthrough in your life.
+
+### Epiphany 2: People don't know shit.
+
+**The thing you really want to look closely for is unjustified certainty.**
+
+> When you grow up, you tend to get told the world is the way it is and your life is just to live your life inside the world. Try not to bash into the walls too much. Try to have a nice family life, have fun, save a little money. That’s a very limited life. Life can be much broader once you discover one simple fact. And that is: **Everything around you that you call life was made up by people that were no smarter than you.** And you can change it, you can influence it, you can build your own things that other people can use. Once you learn that, you’ll never be the same again. ~Jobs
+
+There are clues all around showing us that conventional wisdom doesn’t know shit. Conventional wisdom worships the status quo and always assumes that everything is the way it is for a good reason—and history is one long record of status quo dogma being proven wrong again and again, every time some chef comes around and changes things.
+
+And if you open your eyes, there are other clues all through your own life that the society you live in is nothing to be intimidated by. All the times you learn about what really goes on inside a company and find out that it’s totally disorganized and badly run. All the people in high places who can’t seem to get their personal lives together. All the well-known sitcoms whose jokes you’re pretty sure you could have written when you were 14. All the politicians who don’t seem to know more about the world than you do.
+
+I try to leverage what I learned as a traveler to transfer the chefness elsewhere—when I find myself discouraged in another part of my life by the warnings and head-shaking of conventional wisdom, I try to remind myself: “These are the same people that were sure that North Korea was dangerous.”
+
+It’s hard—you have to take the leap to chefdom separately in each part of your life — but **it seems like with each successive cook → chef breakthrough, future breakthroughs become easier to come by.**
+
+**Eventually, you must hit a tipping point and trusting your own software becomes your way of life—and as Jobs says, you’ll never be the same again.**
+
+### Epiphany 3: You’re playing Grand Theft Life.
+
+The chef treats his goals and undertakings as experiments whose purpose is as much to learn new information as it is to be ends in themselves.
+
+Musk: I’m a huge believer in taking feedback. I’m trying to create a mental model that’s accurate, and if I have a wrong view on something, or if there’s a nuanced improvement that can be made, I’ll say, “I used to think this one thing that turned out to be wrong—now thank goodness I don’t have that wrong belief.”
+
+> Success is going from failure to failure without losing your enthusiasm. ~Winston Churchill
+
+> I have not failed 700 times. I’ve succeeded in proving 700 ways how not to build a lightbulb. ~Thomas Edison
+
+It’s not surprising that so many of the most wildly impactful people seem to treat the world like a lab and their life like an experiment session—that’s the best way to succeed at something.
+
+But for most of us, we just can’t do it.
+
+### Misconception 1: Misplaced Fear
+
+Chef’s courage actually just being an accurate assessment of risk.
+
+So in the same way our cook-like qualities were custom-built for survival in tribal times, our obsession with fears of all shapes and sizes may have served us well in Ethiopia 50,000 years ago—but it mostly ruins our lives today.
+
+Because not only does it amp up our fear in general to “shit we botched the hunt now the babies are all going to starve to death this winter” levels even 	though we live in an “oh no I got laid off now I have to sleep at my parents’ house for two months with a feather pillow in ideal 68º temperature” world—but it also programs us to be terrified of all the wrong things.
+
+**We’re more afraid of public speaking than texting on the highway, more afraid of approaching an attractive stranger in a bar than marrying the wrong person, more afraid of not being able to afford the same lifestyle as our friends than spending 50 years in meaningless career—all because embarrassment, rejection, and not fitting in really sucked for hunters and gatherers.**
+
+### Misconception 2: Misplaced Identity
+
+The challenge with this last epiphany is to somehow figure out a way to lose respect for your own fear.
+
+Unlike GTA, in real life, the law is a thing and jail is a thing. But that’s about where the differences end.
+
+**If someone gave you a perfect simulation of today’s world to play in and told you that it’s all fake with no actual consequences—with the only rules being that you can’t break the law or harm anyone, and you still have to make sure to support your and your family’s basic needs—what would you do?**
+
+My guess is that most people would do all kinds of things they’d love to do in their real life but wouldn’t dare to try, and that by behaving that way, they’d end up quickly getting a life going in the simulation that’s both far more successful and much truer to themselves than the real life they’re currently living.
+
+Because no one’s a perfect chef—not even Elon. And no one’s a pure cook either—nothing’s black and white when you’re talking about an animal species whose brains contain 86 billion neurons.
+
+🚨 **If we want to improve ourselves and move our way closer to the chef side of the spectrum, we have to remember to remember. We have to remember that we have software, not just hardware. We have to remember that reasoning is a skill and like any skill, you get better at it if you work on it. And we have to remember the cook/chef distinction, so we can notice when we’re being like one or the other.** 🚨
