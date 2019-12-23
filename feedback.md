@@ -1,10 +1,10 @@
-# feedback
+# Feedback
 
-## links
+## Links
 
 - http://www.bakadesuyo.com/2014/02/feedback/
 
-## questions
+## Questions
 
 1. What's one thing that you see me doing or failing to do that's getting in my own way?
 2. What's one thing I could change that would make a difference to you?
@@ -12,7 +12,7 @@
 **If you keep hearing something over and over again, it's probably true and it's sth you should act on.**
 Give it a shot for a week and see what happens.
 
-## feedback at work
+## Feedback at work
 
 - It's your work, own getting feedback
 - Have a designated facilitator
@@ -20,7 +20,7 @@ Give it a shot for a week and see what happens.
 - Separate like/hate from good/bad
 - Avoid too many people (5-6 is ok)
 
-## delivering feedback
+## Delivering feedback
 
 - don’t sugar coat it
 - humor can help

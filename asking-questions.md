@@ -1,6 +1,6 @@
-# asking questions
+# Asking questions
 
-## links
+## 🔗 Links
 
 - https://hbr.org/2015/03/relearning-the-art-of-asking-questions
 

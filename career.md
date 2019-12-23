@@ -1,4 +1,4 @@
-# career
+# Career
 
 ## [How to Pick a Career (That Actually Fits You) - WBW](https://waitbutwhy.com/2018/04/picking-career.html)
 

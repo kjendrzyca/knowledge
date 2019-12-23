@@ -1,6 +1,6 @@
-# life
+# Life
 
-## winning life in 19 superdifficult steps / not giving a fuck
+## Winning life in 19 superdifficult steps / Not giving a fuck
 
 Source:
 
