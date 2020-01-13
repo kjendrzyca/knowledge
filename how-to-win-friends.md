@@ -47,3 +47,31 @@ Do unto others as you would have others do unto you.
 Express honest admiration for others hobby and interests to get something from them.
 
 Talk to people about themselves and they will listen for hours.
+
+## To win people to your way of thinking
+
+### The only way to get the best of an argument is to avoid it
+
+**You can't win an argument.**
+
+> If you argue and rankle and contradict, you may achieve a victory sometimes; but it will be an empty victory because you will never get your opponent's good will. ~Benjamin Franklin
+
+Look for areas of agreement. When you have heard your opponents out, dwell first on the points and areas on which you agree. Be honest. Look for areas where you can admit error and say so. Apologize for your mistakes. It will help disarm your opponents and reduce defensiveness.
+
+Promise to think over your opponents' ideas and study them carefully. And mean it. Your opponents may be right.
+
+When one yells, the other should listen - because when two people yell, there is no communication, just noise and bad vibration.
+
+### How to avoid making enemies
+
+**You cannot teach a man anything; you can only help him to find it within himself.**
+
+Be wiser than other people if you can.
+
+If a person makes a statement that you think is wrong - yes, even that you know is wrong - isn't it better to begin by saying:
+
+🚨 **"Well, now, look. I thought otherwise but I may be wrong. I frequently am. And if I am wrong, I want to be put right. Let's examine the facts."** - magical phrase.
+
+Nobody will ever object to your saying: "I may be wrong. Let's examine the facts."
+
+When we are wrong, we may admit it to ourselves. And if we are handled gently and tactfully, we may admit it to others and even take pride in our frankness and broad-mindedness. But not if someone else is trying to ram the unpalatable fact down our esophagus.
