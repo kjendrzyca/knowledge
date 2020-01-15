@@ -129,3 +129,33 @@ The movies do it. TV does it. Why don't you do it?
 **Throw down a challenge.**
 
 Successful person loves 'the game', desire to excel.
+
+## Be a leader
+
+### If you must find fault, this is the way to begin
+
+> 💡 me: doesn't work these days
+
+It's always easier to hear unpleasant things after we have heard some praise in our good points.
+
+Begin with praise and honest appreciation.
+
+### How to criticize and not be hated for it
+
+To achieve success change "but" to "and":
+
+"We are really proud of you for (...) and by continuing efforts next term, your algebra grade can be up with all the others".
+
+Do not antagonize if someone did something bad. Fix their mistakes in secret and thank them for doing that. They will freak out and will change their behavior (women, builder and the lawn).
+
+**Call attention to people's mistakes indirectly.**
+
+**Talk about your own mistakes before criticizing the other person**: and then suggest them to not make the same mistakes as you did.
+
+### Ask questions instead of giving direct orders
+
+No one likes to take orders.
+
+### Let the other person save face
+
+What matters is not what I think of someone, but what he thinks of himself. Hurting a man in his dignity is a crime.
