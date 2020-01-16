@@ -159,3 +159,41 @@ No one likes to take orders.
 ### Let the other person save face
 
 What matters is not what I think of someone, but what he thinks of himself. Hurting a man in his dignity is a crime.
+
+### How to encourage people to become successful
+
+We all crave appreciation and recognition, and will do almost anything to get it. But nobody wants insincerity. Nobody wants flattery.
+
+**Praise the slightest improvement and praise every improvement. Be "hearty in your approbation and lavish in your praise".**
+
+### Give the other person a fine reputation to live up to
+
+aka Give a dog a good name
+
+### Make the fault seems easy to correct
+
+Tell your child, your spouse, or your employee that he or she is stupid or dumb at a certain thing, has no gift for it, and is doing it all wrong, and you have destroyed almost every incentive to try to improve.
+
+But use the opposite technique - be liberal with your encouragement, make the thing seem easy to to, let the other person know that you have faith in his ability to do it, that he has undeveloped flair for it - and he will practice until the dawn comes in order to excel.
+
+**Use encouragement. Make the fault see easy to correct.**
+
+### Making people glad to do what you want
+
+Be sincere. Do not promise anything that you cannot deliver. Forget about the benefits to yourself and concentrate on the benefits to the other person. Know exactly what it is you want the other person to do.
+
+Be empathetic. Ask yourself what is it the other person really wants.
+
+Consider the benefits that person will receive from doing what you suggest.
+
+Match those benefits to the other person's wants.
+
+When you make your request, put it in a form that will convey to the other person the idea that he personally will benefit.
+
+**Make the other person happy about doing the thing you suggest.**
+
+### 👉 The way to develop self-confidence is to do the thing you fear and get a record of successful experiences behind you.
+
+## Summary
+
+The deepest urge in human nature is ‘the desire to be important'.
