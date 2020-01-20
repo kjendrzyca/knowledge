@@ -1,6 +1,6 @@
 # Feedback
 
-## Links
+## 🔗 Links
 
 - http://www.bakadesuyo.com/2014/02/feedback/
 
