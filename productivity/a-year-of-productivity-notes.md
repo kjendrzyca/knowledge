@@ -33,3 +33,54 @@ When you simply hunker down and dedicate a lot of time to a task, I think it bec
 ## To get more done in less time, schedule less time to do something.
 
 The less time you schedule to complete a task, the more you push yourself to expend more energy over less time so you can get it done.
+
+## Guard and nurture your energy levels at all times.
+
+## Don't work long hours over long period of time.
+
+Working long hours will drain your willpower reserves.
+
+Don't ignore your mind when it tells you it's overworked.
+
+## Make sure your todo list is actually doable.
+
+One of the worst (and least productive) things you can do is be dishonest with yourself.
+
+Is your to-do list doable, or do you keep putting things off to another day?
+
+## Don't spend time on stupid shit.
+
+Do you spend several hours on doing something stupid, and then try to forget about where your time went?
+
+## Manage Expectations
+
+I think one of the best skills you can develop is managing the expectations other people have of you.
+
+When people know you won’t be available on evenings, weekends, or when you’re on vacation, you’ll reduce your stress and your overall workload.
+
+And since breaks can make you so much more productive, it may even be better for your work in the end.
+
+## Think big, act small
+
+I think the key to becoming more productive is to just make one small change at a time. That may sound counterintuitive, but the reason for that is simple: the smaller the change you try to make to your life, the more likely you’ll actually make it.
+
+## Don't ever multitask
+
+Multitasking makes you less productive, and you should create strategies to resist the urge to multitask, like minimizing distractions and checking your email on a schedule.
+
+According to a recent study, when you multitask, you are not being more productive - you just feel more emotionally satisfied from your work.
+
+1. It makes you more prone to errors.
+1. It actually takes longer.
+1. It severely affects your performance.
+1. It affects your memory.
+1. It adds stress to your life.
+
+What to do?
+
+1. Only multitask with simple, habitual tasks.
+1. Minimize distractions (instant messaging alerts, text message vibrations, email notifications, and so on).
+1. Meditate.
+1. Check your email on a schedule.
+1. Know that your brain can’t actually multitask.
+1. Music is a-okay.
