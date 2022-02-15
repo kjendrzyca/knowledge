@@ -8,13 +8,13 @@ Currently you can find the blog here: [https://alifeofproductivity.com/](https:/
 
 Just because you’re busy, doesn’t mean you’re productive.
 
-## Produce and achive specific outcomes
+## Produce and achieve specific outcomes
 
 Just because you feel productive, doesn’t mean you’re productive.
 
 When you multitask, you feel more productive than when you unitask, even though studies have shown time and time again that you’re not.
 
-You feel more productive when you check your email 10 times an hour instead of writing a report, because you receive more feedback from what you’re working on. The better option is to produce and achive specific outcomes for who you work for.
+You feel more productive when you check your email 10 times an hour instead of writing a report, because you receive more feedback from what you’re working on. The better option is to produce and achieve specific outcomes for who you work for.
 
 ## Schedule time where you completely separate from your work
 
